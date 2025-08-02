@@ -12,3 +12,4 @@
 
 Ainda sei pouco, mas estou com muita vontade de aprender.
 Vou usar este espaço pra registrar tudo que eu for aprendendo, passo a passo.
+Conecte-se comigo através do Linkedin: www.linkedin.com/in/matheus-moura-b86b39289
